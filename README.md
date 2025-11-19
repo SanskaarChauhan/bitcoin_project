@@ -420,7 +420,7 @@ This project is for educational and analytical purposes.
 
 ## Contact
 
-For questions or collaboration opportunities, please reach out via [Your Contact Info].
+For questions or collaboration opportunities, please reach out via [sanskaar.17chauhan@gmail.com].
 
 ---
 
